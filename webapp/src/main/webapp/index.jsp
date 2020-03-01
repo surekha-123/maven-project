@@ -1,2 +1,2 @@
 Hello, Welcome to great leaders from Bangalore and Tumkur
-thq for ur welcome
+thq for ur welcomeuruo
